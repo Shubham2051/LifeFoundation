@@ -1,6 +1,6 @@
 # LifeFoundation
 
-<b>Trust shall be public, charitable, literary & scientific and having for its object interalia;<b>
+<b>Trust shall be public, charitable, literary & scientific and having for its object interalia;</b>
 
 Education, research and training:
 1.	To promote & spread all kind of education including management, environmental, sociological, science, & technology education.
